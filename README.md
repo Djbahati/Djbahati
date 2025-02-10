@@ -1,4 +1,4 @@
-Hey, I’m Djbahati
+Hey, I’m THE LION KING$
 I’m interested in soft ware developer and programing
 I’m currently learning how to make "ubwenge karemano AI".
 I’m looking to collaborate on making our owner Rwanda app in kinyarwanda. 
